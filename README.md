@@ -13,6 +13,6 @@ $${\textsf{ᜊ(꒪ˊ꒳ˋ꒪)ᜊ}}$$
 
 
 [BASIC DNI CRITERIA](https://dni-criteria.carrd.co/) ♡ [Pronouspage](https://en.pronouns.page/@SuicidalAngel) 
-♡ [Atabook](https://suicidalangel.atabook.org/) please be nice <3
+♡ [Atabook](https://suicidalangel.atabook.org/) I'm lazy
 
  
