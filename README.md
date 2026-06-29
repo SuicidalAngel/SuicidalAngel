@@ -12,3 +12,4 @@ $${\color{#FF0000}\textsf{Basic dni .}}$$
 
 $${\textsf{ I'm very shYy sorrryyyyyy :((}}$$
  
+[pronous page ♡](https://en.pronouns.page/@SuicidalAngel)
