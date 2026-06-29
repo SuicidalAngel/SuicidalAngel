@@ -2,7 +2,7 @@
   
  
 
-$${\textsf{i hate this, i hate everything ugh}}$$
+$${\color{#FF0000}\textsf{Basic dni .}}$$
 
  
 
