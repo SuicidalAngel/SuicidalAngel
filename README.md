@@ -2,10 +2,13 @@
   
  
 
-$${\textsf{Wip}}$$
+$${\textsf{i hate this, i hate everything ugh}}$$
 
  
 
+
+
+![image alt](https://github.com/SuicidalAngel/SuicidalAngel/blob/4418f5c30bf434e02eefdcd80d356b0648404e4d/G3Kt2KQbQAAgGpe.jpeg)
 
 
  
