@@ -1,1 +1,3 @@
-![image alt](https://github.com/SuicidalAngel/SuicidalAngel/blob/5c537c5dc0b676e16a6c770b0d8f9895ccd8b960/490b2bec94d91ed6f85eeee740365090.jpg)
+![image alt](https://github.com/SuicidalAngel/SuicidalAngel/blob/6cc1a95eab788177a0dc2e7c55308e7b668ea5d0/b59f044f1ea6a1454ea8872fddec9c97.jpg)
+
+  Wip                                                                          
