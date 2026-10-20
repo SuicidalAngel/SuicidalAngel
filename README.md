@@ -1,3 +1,2 @@
-![image alt](https://github.com/SuicidalAngel/SuicidalAngel/blob/6cc1a95eab788177a0dc2e7c55308e7b668ea5d0/b59f044f1ea6a1454ea8872fddec9c97.jpg)
-
-  Wip                                                                          
+![image alt](https://github.com/SuicidalAngel/SuicidalAngel/blob/c1b32a94c9bb70618f00c4e44aad96da7c18e857/209%20sin%20t%C3%ADtulo_20261020183753.png)                                                                        
+![image alt](https://github.com/SuicidalAngel/SuicidalAngel/blob/c1b32a94c9bb70618f00c4e44aad96da7c18e857/209%20sin%20t%C3%ADtulo_20261020184318.png)
