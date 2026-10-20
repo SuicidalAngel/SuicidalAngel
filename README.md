@@ -1,2 +1,1 @@
 ![image alt](https://github.com/SuicidalAngel/SuicidalAngel/blob/c1b32a94c9bb70618f00c4e44aad96da7c18e857/209%20sin%20t%C3%ADtulo_20261020183753.png)                                                                        
-![image alt](https://github.com/SuicidalAngel/SuicidalAngel/blob/c1b32a94c9bb70618f00c4e44aad96da7c18e857/209%20sin%20t%C3%ADtulo_20261020184318.png)
